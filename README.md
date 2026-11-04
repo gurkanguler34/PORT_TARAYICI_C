@@ -2,7 +2,7 @@
 
 <br><br>
 
-<img width="541" height="494" alt="Ekran Resmi 2026-11-05 01 25 53" src="https://github.com/user-attachments/assets/7f095309-93aa-46fb-9507-b05e81631ad5" />
+<img width="546" height="493" alt="Ekran Resmi 2026-11-05 01 31 21" src="https://github.com/user-attachments/assets/d7cfa190-afbb-43ad-a233-62e3ef36fce8" />
 
 <br><br>
 
